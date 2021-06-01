@@ -1,6 +1,4 @@
 
-
-
 Please contact me on Telegram or WhatsApp
 
 Telegram:  @Mzn_Rahi
